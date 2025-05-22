@@ -1,0 +1,1 @@
+# app-detector-de-queda-16-05-2025
